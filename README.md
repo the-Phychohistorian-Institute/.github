@@ -9,5 +9,4 @@ conclusion? They only have two things in common: 1. they're human 2. they have a
 2. only humans can find that out
 on these basises, we build our science
 if you want to help, join, donate or anything else, please contact phychohistory@outlook.com
-website: 
 :)
